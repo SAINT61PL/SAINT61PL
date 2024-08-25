@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SAINT61PL
-- 👀 I’m interested in ...coding
-- 🌱 I’m currently learning ...date bases
+- 👀 I’m not interested in ...coding
+- 🌱 I’m currently an accouting for VISAUDIO in France ...
 - 💞️ I’m not looking to collaborate at the momment ...
 - 📫 How to reach me ...IG:@omar_chehabi99
 
